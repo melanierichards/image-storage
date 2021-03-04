@@ -1,0 +1,1 @@
+Image rights belong to their respective owners. Grunge poster courtesy of EMP Museum.
